@@ -30,12 +30,6 @@ earthly adviser—  Bought Aldrich's Story of a bad boy which is a sponge cake k
 
 for Railroad Telegh experiment—will get costs in day or so.— Tomlinson made Sammy mad by saying he Insull was Valet to my intellect= Got $100 met Dot and skipped for the Argosy of the Puritan Sea: ie Sound Steamboat.—  Dot is reading a novel—rather trashy, Love hash.— I completed reading Aldrich's Bad Boy and advanced 50 pages in Goethe then retired to a "Sound" sleep.
 
-### Page 5
-
-.ve-media https://edisondigital.rutgers.edu/iiif/MA007 seq=5 left
-
-They are wandering jewlets to wander forever in the printers world Dont like ==Dickens=={Q5686}—dont know why I'l stock my literary cellar with his works later. ==Charlotte Bronte=={Q127332} was like ==DeQuincy=={Q317160}, what a nice married couple they would have been I must read ==Jane Eyre=={Q182961}. played a little on the piano its badly out of tune two keys have lost their voice. Dot has just read to me outlines of her proposed novel, the basis seems to be a marriage under duress I told her that in case of a marriage to put in bucketfulls of misery. This would make it realistic. speaking of realism in painting etc ==Steele Mackaye=={Q1668569} at a dinner given to H H Porter, ==Wm Winter=={Q8020478} and myself told us of a difinition of modern realism given by some frenchman whose name I have forgotten. "Realism, a dirty long haired painter sitting on the head of a bust of Shakespeare painting a pair of old [bo-] boots covered with dung" The bell rings for supper I goe Sardines the principal attraction on seeing them was attacked by a stroke of vivid memory of some sardines I eat last winter that caused a rebellion in the labyrinth of my stomach could scarcely swallow them today
-
 .ve-graphic [https://www.flickr.com/photos/mastatelibrary/9458639237/in/album-72157634970087059/](https://drive.google.com/drive/my-drive) 
 
 Woodside Villa Boston Harbor 
