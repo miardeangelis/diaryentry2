@@ -4,9 +4,7 @@
 
 ## Menlo Park N.J. July 13, 1885
 
-Edison's Home in Menlo Park 
-
-> come back to graphic 
+Edison's Home in Menlo Park <come back to graphic>
 
 ### Page 1
 
