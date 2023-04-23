@@ -28,7 +28,7 @@ earthly adviser Bought Aldrich's Story of a bad boy which is a sponge cake kind 
 
 .ve-media https://edisondigital.rutgers.edu/iiif/MA007 seq=4 left
 
-for **Railroad Telegh experiment** will get costs in day or so. Tomlinson made Sammy mad by saying he Insull was Valet to my intellect= Got $100 met Dot and skipped for the Argosy of the Puritan Sea: ie Sound Steamboat.  Dot is reading a novel rather trashy, Love hash. I completed reading Aldrich's Bad Boy and advanced 50 pages in Goethe then retired to a "Sound" sleep.
+for** Railroad Telegh experiment** will get costs in day or so. Tomlinson made Sammy mad by saying he Insull was Valet to my intellect= Got $100 met Dot and skipped for the Argosy of the Puritan Sea: ie Sound Steamboat.  Dot is reading a novel rather trashy, Love hash. I completed reading Aldrich's Bad Boy and advanced 50 pages in Goethe then retired to a "Sound" sleep.
 
 .ve-graphic [https://www.flickr.com/photos/mastatelibrary/9458639237/in/album-72157634970087059/](https://drive.google.com/drive/my-drive) 
 
