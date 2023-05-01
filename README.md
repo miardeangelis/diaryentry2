@@ -4,13 +4,13 @@
 
 ## Menlo Park N.J. July 13, 1885
 
-Edison's Home in Menlo Park <come back to graphic>
+Edison's Home in Menlo Park 
 
 ### Page 1
 
 .ve-media https://edisondigital.rutgers.edu/iiif/MA007 left
 
-Woke (is there such a word) at 6 oclock—slipped down the ==declivity=={Q16868128} of unconsciousness again until 7. arose and tried to shave with a razor so dull that every time I scraped my face it looked like I was in the throes of ==cholera morbus=={Q156103}. by shaving often I too a certain extent circumvent the diabolical malignity of these razors if I could get my mind down to details perhaps could learn to sharpen it, but on the other hand I might cut myself As I had to catch the 7:30 am train for New York I hurried breakfast, crowded meat potatoes, eggs, coffee, tandem down into the chemical room of my body. Ive now got ==dyspepsia=={Q653971} in that diabolical thing that ==Carlyle=={Q151403} calls the stomach, rushed and caught train Bought a New York World at Elizabeth for my mental breakfast Among the million of perfected Mortals on Manhattan island two of them took it into their heads to cut their naval chord from mother earth and be born into a new world, while two other less developed citizens stopped two of the neighbors from living The details of these two little 
+Woke (is there such a word) at 6 oclock—slipped down the ==declivity=={Q16868128} of unconsciousness again until 7. arose and tried to shave with a razor so dull that every time I scraped my face it looked like I was in the throes of ==cholera morbus=={Q156103}. by shaving often I too a certain extent circumvent the diabolical malignity of these razors if I could get my mind down to details perhaps could learn to sharpen it, but on the other hand I might cut myself As I had to catch the 7:30 am train for New York I hurried breakfast, crowded meat potatoes, eggs, coffee, tandem down into the chemical room of my body. Ive now got ==dyspepsia=={Q653971} in that diabolical thing that ==Carlyle=={Q151403} calls the stomach, rushed and caught train Bought a ==New York World=={Q1066835} at Elizabeth for my mental breakfast Among the million of perfected Mortals on Manhattan island two of them took it into their heads to cut their naval chord from mother earth and be born into a new world, while two other less developed citizens stopped two of the neighbors from living The details of these two little 
 
 ### Page 2
 
